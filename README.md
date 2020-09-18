@@ -5,4 +5,6 @@
 ###### upload time/date:
 ###### 23 june 2020, 11:50 PM
 ###### coder: Klevisi2004 
-###### https://github.com/klevisi2004
+## Follow me:
+### https://www.instagram.com/klevis_r1
+### https://www.youtube.com/c/kvisiofficial/
